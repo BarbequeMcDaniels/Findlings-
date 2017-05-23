@@ -1,2 +1,4 @@
 # Findlings-
 Findlings from May 
+
+Youth has always scoffed at the big cars, calling them rolling palaces. Ask the man who’s owned for or five Buick Electras. Or living rooms on wheels. One look and you can tell he could probably own any car he wanted to. But sooner or later the scoffing stops and one begins to see what the Ninety-Eight is all about. But every year or two he comes back for a another Electra. Everything is so comfortable inside, including the ride. Inside he finds the kind of quiet world we’d all like to escape to every once in a while. To find out how rough the road is, you almost have to look. The appointments: undiluted luxury. Armrests and ashtrays surround you. The controls precisely placed. In some ways it’s even more comfortable than your living room. With almost every conceivable power assist available. Mention Electra to your Buick dealer and see what happens. So we can all breathe a little bit easier. 
